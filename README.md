@@ -2,4 +2,4 @@
 nsbz
 bznznd
  znxnxmnd 
-bzjxjxn
+bzjx
