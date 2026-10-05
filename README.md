@@ -2,5 +2,4 @@
 
 
 d;f;fbdge gs  rhnmsfmhnd
-ge,r,met   dtmhn h ;rhnt het ry
-er
+ge,r,met   dtmhn h ;rhnt he
