@@ -1,5 +1,4 @@
 # CloudPilot
 
 
-d;f;fbdge gs  rhnmsfmhnd
-ge,r,met   dtmhn 
+d;f;fbdge gs  ge,r,met   dtmhn 
