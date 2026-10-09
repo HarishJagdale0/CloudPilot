@@ -1,4 +1,4 @@
 # CloudPilot
 
 
-s,gh g ngj,gr,rg,r,ryo  s mry,yhegetg
+s,gh g ngj,gr,rg,r,ryo  s m
